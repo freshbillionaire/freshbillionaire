@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @freshbillionaire
+- 👀 I’m interested in Gaming,Crypto and stuff
+- 🌱 I’m currently learning C#,Java,Phyton and Economy
+- 📫 How to reach me Mail: burakefecoin@gmail.com Instagram:@kalinuclusarjaleti Twitter:@CriptoMuz
